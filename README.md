@@ -32,4 +32,4 @@ Maxime aka Mak_r (Maker)
 
 N'hésitez pas à me contacter via le mail suivant : maker.officiel@protonmail.com En vous souhaitant mûres réflexions.
 
-PS : n’hésitez pas a partager, le site n’est pas encore opérationnel😊
+PS : n’hésitez pas a partager, le site n’est pas encore opérationnel😊 !
